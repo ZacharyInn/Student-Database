@@ -1,5 +1,3 @@
-Use 1 late day
-
 Zachary Inn
 2376935
 inn@chapman.edu
